@@ -16,3 +16,8 @@ leetcode.com/rewind/?ref=KnockCat
 ![Screenshot (1150)](https://github.com/user-attachments/assets/0f455c85-e321-4f83-9865-eb47802d2f9a)
 ![Screenshot 2024-12-20 115018](https://github.com/user-attachments/assets/afe29a47-63c1-4b3b-a12f-79a18342adf9)
 ![final](https://github.com/user-attachments/assets/6f37a3a3-a207-4f0f-89c0-f435fa08460c)
+
+![2025](https://github.com/user-attachments/assets/42cd0e67-2a48-438a-8a4d-09ce9e7e773a)
+
+
+![streak](https://github.com/user-attachments/assets/e53b106b-05a8-4b9f-b723-1fb12428c411)
